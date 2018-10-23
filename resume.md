@@ -3,7 +3,7 @@
   970 South Main  
   Mapleton UT 84664  
   **(801)888-9918**  
-  **kristenallred16@gmail.com**  
+  **kristenallred16@gmail**  
   
 ## PROFILE
 
