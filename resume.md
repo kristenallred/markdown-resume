@@ -5,7 +5,7 @@
   **(801)888-9918**  
   **kristenallred16@gmail.com**  
   
-#### PROFILE
+## PROFILE
 
 I’m currently on a D1 college volleyball team and have been and
 continue  to learn many valuable skills. These include teamwork,
@@ -13,7 +13,7 @@ discipline, and a  strong work ethic. I understand the value of
 hard work and dedication and  the dividends it pays. College
 athletics are very time consuming, so I’ve learned how to balance time and prioritize. Even during season I’ve been able to maintain a 4.0 GPA.
 
-#### EXPERIENCE
+## EXPERIENCE
 
 **My Barnwood Frames,** Provo, Utah -_Shipping Employee_  
 MAY 2018 - AUGUST 2018   
@@ -27,7 +27,7 @@ For two summers I was able to develop interpersonal and customer service skills.
 MAY 2015 - JULY 2015  
 I learned a lot of communication and negotiation skills. These include how to take criticism and recognizing the costomer's needs.
 
-#### EDUCATION
+## EDUCATION
 
 **Utah Valley University,** Orem, UT - _Bachelor of Science_  
 JANUARY 2017 - DECEMBER 2020  
@@ -35,7 +35,7 @@ Computer science major, with a computer science minor. Degree anticipated Decemb
 
 Current GPA: 4.0
 
-#### SKILLS
+## SKILLS
 
 Hardworker
 
@@ -45,7 +45,7 @@ Interpersonal Communication
 
 2 Sememsters of Computer Science Education
 
-#### AWARDS
+## AWARDS
 
 **WAC All Freshman Team, 2017** I was recognized for my efforts on the court as a starting freshman.
 
