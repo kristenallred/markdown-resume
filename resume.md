@@ -16,7 +16,7 @@ athletics are very time consuming, so I’ve learned how to balance time and pri
 #### EXPERIENCE
 
 **My Barnwood Frames,** Provo, Utah -_Shipping Employee_  
-MAY 2018 - AUGUST 2018 
+MAY 2018 - AUGUST 2018   
 Worked as a leader in the shipping department. I held many responsibilities, and learned the importance of meeting deadlines.
 
 **Harward Farms,** Provo, Utah - _Corn Stand Worker_  
