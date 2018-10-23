@@ -30,7 +30,7 @@ I learned a lot of communication and negotiation skills. These include how to ta
 #### EDUCATION
 
 **Utah Valley University,** Orem, UT - _Bachelor of Science_  
-<sup>JANUARY 2017 - DECEMBER 2020</sup>  
+JANUARY 2017 - DECEMBER 2020  
 Computer science major, with a computer science minor. Degree anticipated December 2020.
 
 Current GPA: 4.0
